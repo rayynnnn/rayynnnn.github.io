@@ -26,7 +26,7 @@ Having a cat is wonderful! When my cat first came as a early Christmas gift, my 
 Having a cat makes you happy whenever you're stressed right? Yes, everyday or after I'm done with my online class, my cat would bring full of joy to me, I've spent with my cat for countless hours. And he really loves me and I love him so much it's like we've created a powerful bond together during pandemic! My cat makes me distract from negative thoughts. So as of this, why don't you get a cat for yourself? But first, please read FAQS (frequently asked questons) on before getting a cat! *Oh wait*, having a cat like.. Persian breed is best. You know why? Because they are very playabe as much indeed, and because Why I'm telling you that Persian is breed (*in my opinion*) because I have it too nor I experienced on having it!
 
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+🐈━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━🐈
 
 
 ### FAQS ABOUT HAVING CATS
@@ -122,7 +122,7 @@ Cats are often stereotyped as standoffish and aloof, even to the people who love
  *Source: Google*
  
  
- ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+ 🐈━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━🐈
 
 
 ### *Why did I do this on my page?*
