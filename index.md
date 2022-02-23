@@ -2,10 +2,17 @@
 **This page is owned by [Rayn](https://www.facebook.com/rayn.rayn.98284566). Sharing my page would help! <3**
 
 
-### Hi! I just want you to share about cats that I know, But first, please enjoy watching the video about cats!
+### Hi! I just want to share how cats could be important to our daily lives. 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aHKtChm6kgI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
+*But first, I would like you to watch this video below!*
+<div align="center">
+      <a href="https://www.youtube.com/embed/aHKtChm6kgI">
+     <img 
+      src="https://img.youtube.com/embed/aHKtChm6kgI" 
+      alt="5 Benefits of having a cat" 
+      style="width:100%;">
+      </a>
+    </div>
 
 
 ### Why cats are very important to our lives? 
@@ -13,7 +20,33 @@
 Owning a cat can bring unconditional love and companionship to your life. Having a feline friend can also help to relieve stress and improve your heart health. ... A cat has the ability to both calm your nervous system and provide an immediate outlet for fun and play.
 
 
+
+### From my own perspective... 
+Having a cat is wonderful! When my cat first came as a early Christmas gift, my happiness are going limitless. 
+Having a cat makes you happy whenever you're stressed right? Yes, everyday or after I'm done with my online class, my cat would bring full of joy to me, I've spent with my cat for countless hours. And he really loves me and I love him so much it's like we've created a powerful bond together during pandemic! My cat makes me distract from negative thoughts. So as of this, why don't you get a cat for yourself? But first, please read FAQS (frequently asked questons) on before getting a cat! *Oh wait*, having a cat like.. Persian breed is best. You know why? Because they are very playabe as much indeed, and because Why I'm telling you that Persian is breed (*in my opinion*) because I have it too nor I experienced on having it!
+
+
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+
+### FAQS ABOUT HAVING CATS
+
+
+### *Is a cat a good pet?*
+Cat's make great pets and are ideal companions for people who work full time or who live in an apartment. They are less expensive to keep and require less maintenance than dogs. Overall, cats are wonderful pets and will provide a lifetime of love and affection, just like dogs.
+
+
+### *Are cats loyal?*
+It's true that cats have different priorities to dogs. Unlike dogs, whose wolf ancestors bequeathed them a flair for building social relationships, cats are descended from a solitary, territorial animal. ... So cats are loyal, but mainly to places.
+
+
+### *How do I know if my cat loves me?*
+If you don't know, first of when they see you or have a eye contact with you, they will treat you like you're a cat if you're both are getting pretty along, they will rub againts you and then, if they have now interests to you, they will follow you into a rom, coming into your bedroom and sleep with you and they make the right kind of meow or they show their belly—in some cases
+
+
+
+### *Why do cats lick you?*
+In some cases-to show affection. For cats, licking is not only used as a grooming mechanism, but also to show affection. By licking you, other cats, or even other pets, your cat is creating a social bond. ... Many cats carry this behavior into their adult lives, licking their humans to pass along the same sentiment.
 
 
 ### *How do cats help humans?*
@@ -71,13 +104,29 @@ Cats are often stereotyped as standoffish and aloof, even to the people who love
 
 
  *Thanks for reading about cats. That's all I know for sure, by the way, I just saw all of these from Google. Credits to google for giving me all info about cats.*
+ 
+ 
+ ### How to take care of a cat? (*please watch the video briefly*)
+ 
+
+<div align="center">
+      <a href="https://www.youtube.com/watch?v=IKR6FPerXes">
+     <img 
+      src="https://img.youtube.com/watch?v=IKR6FPerXes" 
+      alt="How to take care of your cat" 
+      style="width:100%;">
+      </a>
+    </div>.
+ 
+ 
+ *Source: Google*
+ 
+ 
+ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 
 ### *Why did I do this on my page?*
 If you don't know one of my pure joy to the world has lost to me, he was very special and very different to me. Things has been hard for me. So that's why I made this page not only for him, but to appreciate him from what memories we did for 4 years! *Fact:* he's only 1 years old. He's about to be 2 years old in September 2.
-
-
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 ### MY SOCIAL MEDIAS
 
