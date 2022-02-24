@@ -1,5 +1,8 @@
-## Welcome to Rayn's Corner! :3 🐈
+## Welcome to Rayn's Cat Corner 🐱
 **This page is owned by [Rayn](https://www.facebook.com/rayn.rayn.98284566). Sharing my page would help! <3**
+
+
+![1800x1200_cat_relaxing_on_patio_other](https://user-images.githubusercontent.com/99862245/155469326-aab01ce1-0cba-4852-b1d1-8bb72e192a7b.jpg)
 
 
 ### Hi! I just want to share how cats could be important to our daily lives. 
@@ -29,7 +32,7 @@ Having a cat makes you happy whenever you're stressed right? Yes, everyday or af
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 
-### FAQS ABOUT HAVING CATS
+### FAQS ABOUT HAVING CATS 🐱
 
 
 ### *Is a cat a good pet?*
@@ -126,12 +129,16 @@ Cats are often stereotyped as standoffish and aloof, even to the people who love
 
 
 ### *Why did I do this on my page?*
-If you don't know one of my pure joy to the world has lost to me, he was very special and very different to me. Things has been hard for me. So that's why I made this page not only for him, but to appreciate him from what memories we did for 4 years! *Fact:* he's only 1 years old. He's about to be 2 years old in September 2.
-
-### MY SOCIAL MEDIAS
-
-[TikTok](https://www.tiktok.com/@39rainy)
+My cat is very special to me, sadly, he's not with me anymore.
 
 
-[YouTube](https://www.youtube.com/channel/UCl49gVgpXPgn2UNvnb1yFHA)
+### FUNNY VIDEOS OF CATS 🐱
+
+
+[Funny Cat Video #1](https://www.youtube.com/watch?v=ByH9LuSILxU)
+
+[Funny Cat Video #2](https://www.youtube.com/watch?v=qvAtjkQlEuQ)
+
+[Funny Cat Video #3](https://www.youtube.com/watch?v=eX2qFMC8cFo)
+
 
